@@ -8,7 +8,7 @@ I'm an aspiring **Data Scientist** who believes in the power of steady, step-by-
 
 ## 📫 How to reach me
 - 📧 Email: [faizanmd1627@gmail.com](mailto:faizanmd1627@gmail.com)
-- 🔗 LinkedIn: [Md Faizan Ahsan Ansari](www.linkedin.com/in/faizan1627)
+- 🔗 LinkedIn: [Md Faizan Ahsan Ansari](https://linkedin.com/in/faizan1627)
 
 ---
 
